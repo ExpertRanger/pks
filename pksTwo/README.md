@@ -3,5 +3,5 @@
 ## Cиднев Дмитрий Сергеевич ЭФБО-01-22
 
 
-<img width="1512" alt="image" src="https://github.com/user-attachments/assets/3d157eee-aecf-4cac-86c1-02167e63bc2b">
 
+![image](https://github.com/user-attachments/assets/338b43d1-43f3-41a5-8403-7baca4fdfc0b)
